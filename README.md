@@ -1,1 +1,0 @@
-# ZHAW_SEMESTER_6
